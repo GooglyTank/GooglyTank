@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with anything python related really!
 - 💬 Ask me about anything dm's are open.
 - 📫 How to reach me: Email: alexzander7041@gmail.com, Discord: GooglyTank#4833.
-- ⚡ Fun fact: I dont think @Zer0-Offical is funny!
+- ⚡ Fun fact: I dont think @Zer0-Official is funny!
 
