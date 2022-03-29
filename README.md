@@ -5,6 +5,6 @@
 - 🌱 I’m currently learning Python stuff..
 - 🤔 I’m looking for help with anything python related really!
 - 💬 Ask me about anything dm's are open.
-- 📫 How to reach me: Email: alexzander7041@gmail.com, Discord: GooglyTank#3344.
+- 📫 How to reach me: Email: alexzander7041@gmail.com, Discord: GooglyTank#4833.
 - ⚡ Fun fact: I like roblox! sorry!
 
