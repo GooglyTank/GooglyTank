@@ -8,6 +8,7 @@
 - 📫 How to reach me  <strong>Email: </strong> alexzander7041@gmail.com,  <strong>Discord: </strong> GooglyTank#4833.
 - ⚡ Fun fact: I dont think @Zer0-Official is funny!
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=zer0-official&label=Profile%20views&color=0e75b6&style=flat" alt="zer0-official" /> </p>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://stackoverflow.com/users/18419694" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/stack-overflow.svg" alt="16476787" height="30" width="40" /></a>
